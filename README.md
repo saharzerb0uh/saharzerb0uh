@@ -1,6 +1,6 @@
 - 👋 Hi, I’m sahar_zerbouh
 - 👀 I’m an artist
-- 🌱 I’m currently learning programming
+- 🌱 I’m currently learning coding
 - 📫 How to reach me @bearcontact6@gmail.com
 - 😄 Pronouns: she-her
 
